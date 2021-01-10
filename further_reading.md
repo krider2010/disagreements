@@ -1,6 +1,6 @@
 # Further Reading/Watching
 
-
+Just a small fraction of what is out there to learn more from!
 ## Books 📕
 
 * Humble Inquiry - https://amzn.to/3537xGF
