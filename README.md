@@ -14,7 +14,7 @@ There are so many resources that are useful. I've added several in the [further 
 
 ## Slides
 
-The slides will be (or have been depending when you read this!) made available on [Speaker Deck](https://speakerdeck.com/krider2010/disagreements-at-work)
+The slides will be (or have been depending when you read this!) made available on [Speaker Deck](https://speakerdeck.com/krider2010/making-disagreements-at-work-respectful-and-productive)
 
 
 
